@@ -1,2 +1,2 @@
-🧛🧛🧛🧛это репозиторий двух папочек этого мира леонида индахудова и ярика лоха🧛🧛🧛🧛
+🧛🧛🧛🧛это репозиторий двух папочек этого мира леонида индахудова и ярика даблкапова🧛🧛🧛🧛
 SLATTSLATTSLATTSLATTSLATTSLATTSLATTSLATTSLATTSLATTSLATTSLATTSLATTSLATTSLATTSLATTSLATTSLATT
